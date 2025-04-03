@@ -17,7 +17,7 @@ Crypto Alpha Community. Focus on early-stage projects, blockchain education & te
 Stay connected with AirdropLegionCommunity for real-time updates and discussions!
 Happy hunting
 
-### 🌍 Connect With Me  
+### 🌍 Let's connect
 - [Telegram](https://t.me/airdropalc)  
 
 
