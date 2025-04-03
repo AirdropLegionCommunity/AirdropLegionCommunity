@@ -18,6 +18,6 @@ Stay connected with AirdropLegionCommunity for real-time updates and discussions
 Happy hunting
 
 ## Let's connect 
-![Telegram] ("https://t.me/airdropalc")
+[Telegram]("https://t.me/airdropalc")
 
 Dont't forget to follow and stars
